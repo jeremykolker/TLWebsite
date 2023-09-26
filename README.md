@@ -1,1 +1,1 @@
-Trad Line Website in progress
+Traditional Line website in progress
